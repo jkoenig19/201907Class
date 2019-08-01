@@ -1,2 +1,2 @@
 # 201907Class
-Tonight's class
+Tonight's class updated
